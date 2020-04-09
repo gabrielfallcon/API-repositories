@@ -34,6 +34,6 @@
 * Assim que o usuario der like a lista de repositórios é atualizada
 
 
-Da uma fuçada lá no meu Linkedin para Jobs ou networking ;) :p 
+Da uma fuçada lá no meu Linkedin para Jobs ou networking :computer: :purple_heart:
 
 [Linkedin](https://www.linkedin.com/in/frontgabriel/)
